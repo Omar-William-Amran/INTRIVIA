@@ -12,3 +12,7 @@ di dunia pekerjaan
 
 ## Kesan Pesan Cluster 16 Sejauh Ini 
 Mabanya asik, mentornya asik. Nyaman lah di Cluster 16
+
+## Harapan Kuliah 
+Harapan kuliah saya adalah menyelesaikan kuliah dengan lancar
+dan memiliki kemampuan untuk dibawa ke dunia pekerjaan
